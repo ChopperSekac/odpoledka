@@ -2,7 +2,7 @@
 # Vítejte na mém supr rychlém tranzistorovém gitu!
 
 
-
+¯\_(❛̃ ͜ʖ❛̃)_/¯
 
 ╔══╗
 ╚╗╔╝
